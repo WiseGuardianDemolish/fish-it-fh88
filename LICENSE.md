@@ -1,4 +1,4 @@
-
+rare Script for fish it is the best fish it Script, featuring teleport and private server access. Safe and powerful for all your needs.
 
 
 
